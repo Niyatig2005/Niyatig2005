@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Niyatig2005
-- 👀 I’m interested in building an onlne presence/portfolio
-- 🌱 I’m currently learning BSc Hons. Mathematics
+- 👀 I’m interested in building an online presence/portfolio
+- 🌱 I’m currently doing BSc (Hons) Mathematics
 - 📫 How to reach me https://www.linkedin.com/in/niyatig2005/
 - 😄 Pronouns: She/Her
 
